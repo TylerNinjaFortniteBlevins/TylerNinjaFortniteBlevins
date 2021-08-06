@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TylerNinjaFortniteBlevins
+- 👀 I’m interested in your mom
+- 🌱 I’m currently learning how to fuck your mom the best
+- 💞️ I’m looking to collaborate on fucking your mom, if you're into that
+- 📫 How to reach me: walk into your mom's room
