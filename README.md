@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning how to fuck your mom the best
 - 💞️ I’m looking to collaborate on fucking your mom, if you're into that
 - 📫 How to reach me: walk into your mom's room
+- [Click here for a funny.](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
